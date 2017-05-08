@@ -1,1 +1,1 @@
-# 302-Assignment-2
+All information relating to Assignment 2 can be found on Blackboard
